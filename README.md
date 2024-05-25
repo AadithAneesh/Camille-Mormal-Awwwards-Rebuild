@@ -1,1 +1,1 @@
-# Camille-Mormal-Awwwards-Rebuild By LegacyLMAO
+# Camille-Mormal-Awwwards-Rebuild
